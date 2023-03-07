@@ -1,3 +1,3 @@
 <div align="center">
-  <img src="https://i.gifer.com/embedded/download/9kA5.gif" width="100"/>
+  <img src="https://i.gifer.com/Dezp.gif" width="100"/>
 </div>
